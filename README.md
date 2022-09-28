@@ -8,14 +8,16 @@ Ingredientes para hacer Pizza casera:
 
 Procedimiento:
 
-1. lo primero que vamos a hacer es mezclar en un recipiente el agua templada con la levadura fresca. Para elaborar una masa para pizza casera fácilmente puedes utilizar este tipo de levadura o hacer una masa de pizza con levadura seca, ambas son válidas. En el caso de que prefieras la seca, deberás mezclarla con la harina y si, por el contrario, prefieres la fresca, es fundamental mezclarla con agua tibia. La levadura fresca es aquella que se vende en bloque y se tiene que conservar en el frigorífico.
+1. El primer paso a realizar para la elaboración de nuestra exquisita pizza consiste en mezclar en un recipiente agua templada con levadura fresca (La levadura fresca es la aquella que se vende en bloque y debe conservarse en un frigorífico). Posteriormente, procedemos a hacer uso de esta para nuestra masa casera. No obstante, si prefiere hacer uso de la levadura seca, deberá mezclarla con la harina. 
 
-2. Cuando hayas mezclado la levadura con el agua, agrega las dos cucharadas de aceite. Mezcla bien para que se integren todos los ingredientes para la pizza.
+2. Cuando haya mezclado la levadura con el agua, agregue las dos cucharadas de aceite. Mezcle bien para que se integren todos los ingredientes para la pizza.
 
-3. Antes de que la preparación se enfríe, añade en un bol amplio la harina de fuerza y la sal, acomódalas en forma de volcán. Vierte la mezcla anterior en el centro.
+3. Antes de que la preparación se enfríe, añada en un bol amplio la harina de fuerza y la sal, acomódela en forma de volcán. Vierta la mezcla anterior (La del paso 3) en el centro.
 
-4. Ahora es cuando tienes que empezar a amasar bien hasta que notes que la masa de pizza casera deja de pegarse en tus manos y puedes manejarla sin problemas.
+4. Ahora es cuando tiene que empezar a amasar bien hasta que note que la masa de pizza casera deja de pegarse en sus manos y pueda manejarla sin problemas.
 
-5. Cuando tengas la masa de pizza esponjosa lista, deberás darle forma de tubo largo y cortarla en 4 particiones. Después, haz una bola con cada partición y tápalas con un trapo limpio y seco. Deberás dejarlas reposar durante 45 minutos. Verás que, poco a poco, empiezan a elevarse hasta duplicar su volumen. Cada bola de masa te servirá para hacer una pizza casera normal.
+5. Cuando tengas la masa de pizza esponjosa lista, deberá darle forma de tubo largo y cortarla en 4 particiones. Acto seguido, haga una bola con cada partición y tápelas con un trapo limpio y seco. Deberá dejarlas reposar durante 45 minutos. Verá que, poco a poco, empiezan a elevarse hasta duplicar su volumen. Cada bola de masa le servirá para hacer una pizza casera normal.
 
-6. Pasado el tiempo correspondiente, espolvorea un poco de harina sobre una mesa para preparar la pizza casera, coge una de las bolas y colócala sobre ella. Ahora deberás extenderla con tus manos estirando desde el centro hacia los costados, dándole forma circular. Si dispones de rodillo también puedes utilizarlo para que quede más fina la masa.
+6. Pasado el tiempo correspondiente, espolvoree un poco de harina sobre una mesa para preparar la pizza casera, coja una de las bolas y colóquelas sobre ella. Ahora deberá extenderla con sus manos estirando desde el centro hacia los costados, dándole forma circular. Si dispone de rodillo también puede hacer uso de este para que quede más fina la masa.
+
+7. Posteriormente de haber terminado de darle forma nuestra masa, escogemos los ingredientes que nos gustaría que contenga nuestra pizza. Acto seguido precalentamos esta a temperatura máxima en el horno unos 20 minutos.
